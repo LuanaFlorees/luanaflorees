@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Luana Flores 😁
+## Bem-vindo(a) ao perfil da Luana Flores 👸🏼
 
  <div>
    <a href="https://github.com/luanaflorees">
